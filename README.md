@@ -1,1 +1,1 @@
-# alvi-huzaifa.alvi-huzaifa.github.io
+# alvi-huzaifa.github.io
